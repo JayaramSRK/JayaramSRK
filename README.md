@@ -6,7 +6,7 @@
 
 I help leadership teams turn complex transformation portfolios into measurable business value through clear strategy, strong governance, and disciplined execution.
 
-[Portfolio](https://jayaramsrk.github.io/) · [Executive dashboard](https://jayaramsrk.github.io/JayaramSRK-AI-Executive-Dashboard/) · [LinkedIn](https://www.linkedin.com/)
+[Portfolio](https://jayaramsrk.github.io/) · [Executive dashboard](https://jayaramsrk.github.io/JayaramSRK-AI-Executive-Dashboard/)
 
 </div>
 
